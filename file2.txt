@@ -1,2 +1,0 @@
-cambio en file2.txt
-
