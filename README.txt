@@ -5,4 +5,5 @@ VERCH RAMA 3 zorrones
 cambios
 mas cambios
 CAMBIOS DESDE RAMAAA 5 PRROSSSS
-conflicto prros lokos
+aka es donde vale verga prros lokos!!!!!
+ni madres no pasas
